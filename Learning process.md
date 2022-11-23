@@ -46,4 +46,14 @@ For example working on maths, then history, then building a PowerPoint presentat
 #### - Increase your brain’s capacity to learn<br>
 The first eight tips are really about how to get the best result from your brain’s current "learning capacity”. By “learning capacity” I mean the  physical structure of your brain, including all the neural networks that determine how well you can think (your memory, attention, speed of processing and ability to sequence ideas). Imagine if you could increase your brain’s ability to do those things better. Thanks to recent neuroscience research and the conversion of that into a range of brain training programs we all now have the ability to improve our learning capacity. Then when you use the learning tips 1 – 8, you will get an even better learning outcome.
 
+#### How to learn anything:<br>
+The main way to start learning new skill in particular time is to be consitent and satart enjoying it with doing some steps to folow.
+<br>1.Deconstruct the skill(what do you want  to be capable after learning the skill, divide the skills into smaller pieces of skill).
+<br>2.Learn enough self correct.(get three or five resources about the skill (books, course, online resources) )
+<br>3.Remove practice  barrier (internet, social media ,television)
+<br>4.Practice at least 20 hours. (You can overcome the frustration barrier after practicing the 20 hours)
+##### In my point of view the major barrier is not intellectual , its emotional*
+
+
+
 
