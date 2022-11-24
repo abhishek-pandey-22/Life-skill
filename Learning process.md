@@ -49,11 +49,11 @@ The first eight tips are really about how to get the best result from your brain
 ### 5.How to learn anything:<br>
 The main way to start learning a new skill at a particular time is to be consistent and start enjoying it by doing some steps to follow.<br>
 
-<br> 1.Start with having a note on that particular Topic
+<br> 1.Start with having a note on that particular Topic. It takes only up to 20 hrs to know about any new topic by creating sub-topics.
 <br> 2. Make sure to be healthy like having a good sleep so it will help to be more relaxed.
 <br> 3.If the previous strategy is not working then refactor with the new one.
 <br> 4.Discover Your Peak Moment When You Are the Most Attentive and Alert because it will make you more productive.
-<br> 5.Link the concepts with general life things so it will make it easy to understand.
+<br> 5.Link the concepts with general life things so it will make it easy to understand and go for different resources.
 ##### In my point of view, the major barrier is not intellectual, it is emotional*
 
 
