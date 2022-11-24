@@ -47,11 +47,13 @@ For example, working on maths, then history, then building a PowerPoint presenta
 The first eight tips are really about how to get the best result from your brain’s current "learning capacity”. By “learning capacity” I mean the physical structure of your brain, including all the neural networks that determine how well you can think (your memory, attention, speed of processing, and ability to sequence ideas). Imagine if you could increase your brain’s ability to do those things better. Thanks to recent neuroscience research and the conversion of that into a range of brain training programs we all now can improve our learning capacity. Then when you use learning tips 1 – 8, you will get an even better learning outcome.
 
 ### 5.How to learn anything:<br>
-The main way to start learning a new skill at a particular time is to be consistent and start enjoying it by doing some steps to follow.
-<br>1.Deconstruct the skill(what do you want to be capable of after learning the skill, divide the skills into smaller pieces of skill).
-<br>2.Learn enough self-correct.(get three or five resources about the skill (books, courses, online resources) )
-<br>3.Remove practice barriers (internet, social media, television)
-<br>4.Practice for at least 20 hours. (You can overcome the frustration barrier after practicing the 20 hours)
+The main way to start learning a new skill at a particular time is to be consistent and start enjoying it by doing some steps to follow.<br>
+
+<br> 1.Start with having a note on that particular Topic
+<br> 2. Make sure to be healthy like having a good sleep so it will help to be more relaxed.
+<br> 3.If the previous strategy is not working then refactor with the new one.
+<br> 4.Discover Your Peak Moment When You Are the Most Attentive and Alert because it will make you more productive.
+<br> 5.Link the concepts with general life things so it will make it easy to understand.
 ##### In my point of view, the major barrier is not intellectual, it is emotional*
 
 
