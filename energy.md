@@ -30,7 +30,11 @@ Being surrounded by nature will not only make you feel better emotionally, but i
  
 
 ## 2.When do you find getting into the Stress quadrant?
+So we know that stress is an inevitable part of life. We get stressed whether learning something new or doing an intense workout. But staying stressed too long can cause a burnout or make us anxious and depressed.These signs are pointing to stress quadrant.
 ## 3.How do you understand if you are in the Excitement quadrant?
+
+To understand this situation follow quadrant model of Emotional Intelligence includes self-awareness, self-management, social awareness, and relationship management these things helps to find out and if above followings matche with situation then yes you are in that quadrant.
+
 ## 4.Paraphrase the Sleep is your Superpower video in detail
 
 Enough good quality sleep will make you healthier, smarter, younger and sexier. You will find that when you consistently sleep well, you are able to make better decisions and in general, feel more upbeat and happier about life. Eevn Your brain needs adequate sleep to absorb, and to retain new memories. Scientist validated these assumptions by comparing a group of sleep deprived students to a group that got 8 hours of sleep before taking a test. The former had a 40% deficit in their ability to make memories. For some children, this could be the difference between getting an A and failing.
@@ -48,11 +52,18 @@ Here are some tips to get Good sleep habits (sometimes referred to as “sleep h
 * Get some exercise. Being physically active during the day can help you fall asleep more easily at night.
 ## 6.Paraphrase the video - Brain Changing Benefits of Exercise. Minimum 5 points.
 
-1.MRI studies have shown that long-term exercise can increase volume in the prefrontal cortex as well as the hippocampus and striatum<br>
-2.Exercise can make your brain more sensitive to joy<br>
-3.Exercise makes you brave<br>
-4.Moving with others builds trust and belonging<br>
-5.Trying a new activity can transform your self-image<br>
-6.The exercise “high” primes you to connect with others
+1. According to studies have shown that long-term exercise can increase volume in the prefrontal cortex as well as the hippocampus and striatum<br>
+2. Exercise can make your brain more sensitive to joy<br>
+3. Exercise makes you brave<br>
+4. Moving with others builds trust and belonging<br>
+5. Trying a new activity can transform your self-image<br>
+6. The exercise “high” primes you to connect with others
 ## 7.What are some steps you can take to exercise more?
+
+* First thing we need remember that exercise boosts energy<br>
+Regular physical activity can improve your muscle strength and boost your endurance. Exercise delivers oxygen and nutrients to your tissues and helps your cardiovascular system work more efficiently. And when your heart and lung health improve, you have more energy to tackle daily chores.<br>
+* Piece your workout together. You don’t need to get all your exercise at one time. Ten minutes morning, noon, and night can give much of the same benefit as 30 minutes all at once.<br>
+* Exercise with a friend. Finding a workout partner can help keep you on track and motivate you to get out the door.<br>
+* Keep it brisk. When you walk, make it brisk, since this may help control weight better than walking at a leisurely pace. What is brisk enough? Walk as though you are meeting someone for lunch and you are a little late.<br>
+* Plan exercise into your day. Set aside a specific time in your schedule to exercise and put it in your planner.
 
