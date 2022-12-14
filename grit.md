@@ -1,21 +1,21 @@
 ## Paraphrase (summarize) the video in a few lines. Use your own words.
-Grit is a personality trait possessed by individuals who demonstrate passion and perseverance toward a goal despite being confronted by significant obstacles and distractions.It is passion and perseverance for very long term goals. Grit is having stamina. Grit is sticking with your future, day in, day out, not just for the week, not just for the month, but for years, and working really hard to make that future a reality. Grit is living life like it's a marathon, not a sprint.
+
+Grit is a personality trait possessed by individuals who demonstrate passion and perseverance toward a goal despite being confronted by significant obstacles and distractions. It is passion and perseverance for very long-term goals. Grit is having stamina. Grit is sticking with your future, day in, day out, not just for the week, not just for the month, but for years, and working hard to make that future a reality. Grit is living life like it's a marathon, not a sprint.
 ## What are your key takeaways from the video to take action on?
 
 Grit gives people a mental toughness that enables them to persist — and even succeed — in the face of adversity.
 
 ## Paraphrase (summarize) the video in a few lines in your own words.
 
-people believe that their most basic abilities can be developed through dedication and hard work
+The main motive of this video is to tell that people believe that their most basic abilities can be developed through dedication and hard work.
 ## What are your key takeaways from the video to take action on?
 
-
-Image result for why to growth mindset
 Having a growth mindset is important because it can help you overcome obstacles you may face when learning something new or developing a new skill. Growth mindsets understand the importance of persistence and determination.
 ## What is the Internal Locus of Control? What is the key point in the video?
 
-People with a high internal locus of control believe that they control their own success or failure; that success or failure is not the result of chance or fate. By contrast, having a high external locus of control would mean that one attributes success or failure to factors outside of their control.
+People with a high internal locus of control believe that they control their success or failure; that success or failure is not the result of chance or fate. By contrast, having a high external locus of control would mean that one attributes success or failure to factors outside of their control.
 ## Paraphrase (summarize) the video in a few lines in your own words.
+
 1. Acknowledge and embrace imperfections.
 
 2. View challenges as opportunities.
@@ -28,12 +28,12 @@ People with a high internal locus of control believe that they control their own
 
 6. Stop seeking approval.
 
-7. Value the process over the end result.
+7. Value the process over the result.
 
 8. Cultivate a sense of purpose.
 
 
 ## What are one or more points that you want to take action on from the manual? (Maximum 3)
 
-I will stay with a problem till I complete it. I will not quit the problem.
+I will stay with a problem till I complete it. I will not quit the problem.<br>
 I will be focused on mastery till I can do things half asleep. If someone wakes me up at 3 AM in the night, I will calmly solve the problem like James Bond and go to sleep. 
